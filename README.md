@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://dy1-05.pages.dev/">抖音成人版</a>
 
-点击访问：<a href="https://hl437.pages.dev/">黑料社/a>
+点击访问：<a href="https://hl437.pages.dev/">黑料社</a>
 
 点击访问：<a href="https://hl433.pages.dev/">今日吃瓜</a>
 
